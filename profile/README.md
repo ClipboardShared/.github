@@ -1,1 +1,1 @@
-## Hi~ ClipboardShared.
+##  👋Hi~, Here is ClipboardShared.
